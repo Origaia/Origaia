@@ -1,4 +1,4 @@
-Espetacular o sorriso dessa princesa
+<del>Espetacular o sorriso dessa princesa</del>
 É de impressionar quando arrasto ela pra treta
 Não chama as amigas, só ela da conta
 Pra três ela senta mais três ela mama então
